@@ -7,6 +7,6 @@
 - não sou fã de programação👍
 - amo escutar músicas🎵
 - sou mãe de 3 pets🐶🐱🐱❤
-- me segue no insta --> @iisabellasanttana
+- esse é meu instagram --> @iisabellasanttana
 
 
