@@ -1,6 +1,6 @@
 # isabellasantana.cmd
 
-- oii, me chamo isabella😊
+- oii, me chamo me isabella😊
 - SE🔃BA 
 - no momento estou cursando T.I no IF Baiano📚💻
 - não sou fã de programação
